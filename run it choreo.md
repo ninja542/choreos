@@ -21,7 +21,7 @@
 ### same building but the floors and view changed I ain't for the
 * left unloop yoyo, umbrella on **same** **but** **view** and **I** 
 ### waitin' now I bought a 'Rari and I did it just to
-* toss yoyo, jump with both feet and spin on **waitin**
+* toss yoyo on **waitin**, and one knee kneel on **now** 
 ### hear the sound Drive safe really 'boutta lose all it's
 * 
 ### meaning now guess you love to travel when I pull up man you're
